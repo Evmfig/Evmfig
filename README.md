@@ -1,6 +1,6 @@
 - 👋 Hi, I’m @Evmfig
 - 👀 I’m interested in video editing, graphic design and UX/UI design.
-- 🌱 I’m currently learning about collaborative storytelling, video color grading and digital illustrating.
+- 🌱 I’m currently learning about collaborative storytelling, video color grading, digital illustrating and sign language.
 - 💞️ I’m looking to collaborate on video production, graphic or web design.
 - 📫 Reach me at evmfig@gmail.com or on my website, evnfig.com.
 
